@@ -2,4 +2,4 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning Python, C++. 
 - 💞️ I’m looking to collaborate on Nothing.
-- 📫 How to reach me Twitter or Telegram(only for special kids).
+- 📫 How to reach me Twitter or Telegram.
