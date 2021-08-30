@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @krikinlive
-- 👀 I’m interested in 
-- 🌱  
+- 👀 I’m interested in   
 - 💞️ I’m looking to collaborate on Nothing.
 - 📫 How to reach me Twitter or Telegram.
